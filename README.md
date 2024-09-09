@@ -1,7 +1,7 @@
 **DICAS PARA INICIANTES!**
 
 **1: Que time eu devo usar?**  
-No início do jogo, basta usar heróis com mais estrelas e focar no Ichigo. Não é necessário focar em um time específico até que seus heróis alcancem 8 estrelas ou mais. Depois disso, você pode escolher um time na aba ⁠🤜┃teams ou pedir ajuda no ⁠💬┃general-chat ou ⁠❓┃questions para montar um time. Todo time é temporário, então não se prenda a usar o mesmo durante todo o jogo; às vezes será necessário trocar os heróis.
+No início do jogo, basta usar heróis com mais estrelas e focar no Ichigo. Não é necessário focar em um time específico até que seus heróis alcancem 8 estrelas ou mais. Depois disso, você pode escolher um time na aba ⁠🤜┃teams ou pedir ajuda no ⁠💬┃general-chat ou no chat Portugues, ou⁠❓┃questions para montar um time. Todo time é temporário, então não se prenda a usar o mesmo durante todo o jogo; às vezes será necessário trocar os heróis.
 
 **2: O que fazer com diamantes? (Tanto F2P quanto P2W)**  
 Guarde seus diamantes para:  
